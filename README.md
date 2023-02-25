@@ -17,7 +17,7 @@
 
 - 📝 I regularly write articles on [ohkar.com](ohkar.com)
 
-- 💬 Ask me about **Website develop**
+- 💬 Ask me about **Website develope**
 
 - 📫 How to reach me **linn.998.mlm@gmail.com**
 
